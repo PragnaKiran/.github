@@ -4,6 +4,8 @@
 
 The new choice for those of you who don’t feel you have a lot of choices for ICT solutions.
 
+We are here to connect you to everything that matters the most.
+
 <!--
 
 **Here are some ideas to get you started:**
